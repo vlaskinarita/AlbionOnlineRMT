@@ -1,4 +1,4 @@
-# This-place-is-full-of-idiots-from-the-rtm_community
+# This place is full of idiots from russian RMTcommunity
 ПРимеры ведения переговоров и откровенный троллинг некоторох особо одаренных личностей
 
 Начинаб выкадывать долбоебов с чата ботоводов:
