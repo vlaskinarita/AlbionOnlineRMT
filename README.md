@@ -9,7 +9,7 @@ http://cpb.ru/Anton_Chehov_23.10.2023
 
 ![image](https://github.com/vlaskinarita/This-place-is-full-of-idiots-from-the-rtm_community/assets/120003563/85a9c04d-1e82-4f53-afe6-3e6a601604c0)
 
-некое чмо владик лебедев, которые неоесно высказалось о стасике... 
+некое чмо владик лебедев, с его высерами стасике... 
 
 http://cpb.ru/Vlad_Lebedev/ 
 
