@@ -1,4 +1,9 @@
 # Переписка с ебанатами канала "чат РМТ"
+
+You will need to write an email to AO support and duplicate it to Telegram support. Later I will give you the correct email addresses 
+The application template is as follows:
+I am a leader(member) of the XXX guild with over XXX members online in the game Albion Online. Your site hosts a channel https://t.me/AlbionOnlineRMT. It has over 2k subscribers and several years of history. The channel was repeatedly resold and now it is owned by a chita of Ukrainazis. They distribute pirated software and cheats for the game Albion online and also sell and buy game currency for real money. Both of these items clearly violate the rules of use of your platform. The money from the proceeds of the sales is used to support terrorism. Please take action and clean your platform from such content.
+
 Призываю всех легальных игроков Albion Online закрыть канал https://t.me/AlbionOnlineRMT. 
 Эти ссаные ботописатели, барыги и голд сейлеры портят нашу замечательную игру. Каждый из вас может помочь в этом. Просто подайте жалобу на этот канал в суппорт Телеги. Игре нужна ваша помошь! 
 Как это можно сделать смотрите тут: https://dzen.ru/a/ZSdV7GmsHCnMsHdP
